@@ -1,4 +1,4 @@
 # tutorial_public_repo
-Learn how to make a contribution with a pull request.
+Aprender como se hace una contribucion por Pull Request.
 
-DICK penis
+pene polla pala bate
